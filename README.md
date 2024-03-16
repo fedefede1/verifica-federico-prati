@@ -1,62 +1,38 @@
-TUTA GOLD
+MACCHIAVELLI
 
-Se partirò a Budapest, ti ricorderai
-Dei giorni in tenda, quella moonlight
-Fumando fino all'alba, non cambierai
-E non cambierò, fottendomi la testa in un night
-Soffrire può sembrare un po' fake
-Se curi le tue lacrime ad un rave
-Maglia bianca, oro sui denti, blue jeans
-Non paragonarmi a una bitch così
-Non era abbastanza, noi soli sulla Jeep
-Ma non sono bravo a rincorrere
-Cinque cellulari nella tuta gold
-Baby, non richiamerò
-Ballavamo nella zona nord
-Quando mi chiamavi fra'
-Con i fiori, fiori nella tuta gold
-Tu ne fumavi la metà
-Mi passerà, ricorderò
-I gilet neri pieni di zucchero
-Cambio il numero
-Cinque cellulari nella tuta gold
-Baby, non richiamerò
-Dov'è la fiducia? Diventata arida
-È come l'aria del Sahara
-Mi raccontavi storie di gente senza dire
-Mai il nome, nome, nome
-Come l'amico tuo in prigione, ma
-A stare nel quartiere serve fottuta personalità
-Se partirai, dimmi tua madre chi la consolerà?
-Maglia bianca, oro sui denti, blue jeans
-Non paragonarmi a una bitch così
-Non era abbastanza, noi soli sulla Jeep
-Ma non sono bravo a rincorrere
-Cinque cellulari nella tuta gold
-Baby, non richiamerò
-Ballavamo nella zona nord
-Quando mi chiamavi fra'
-Con i fiori, fiori nella tuta gold
-Tu ne fumavi la metà
-Mi passerà, ricorderò
-I gilet neri pieni di zucchero
-Cambio il numero
-Cinque cellulari nella tuta gold
-Baby, non richiamerò
-Mi hanno fatto bene le offese
-Quando fuori dalle medie le ho prese e ho pianto
-Dicevi, "Ritornatene al tuo paese"
-Lo sai che non porto rancore
-Anche se papà mi richiederà
-Di cambiare cognome
-Ballavamo nella zona nord
-Quando mi chiamavi fra'
-Con i fiori, fiori nella tuta gold
-Tu ne fumavi la metà
-Mi passerà, ricorderò
-I gilet neri pieni di zucchero
-Cambio il numero
-Cinque cellulari nella tuta gold
-Baby, non richiamerò
-Cinque cellulari nella tuta gold
-Baby, non richiamerò
+Combino tre sostanze, ma c'è sempre zatla (ah)
+Il mio cervello "baq baq", sono sott'acqua (scusa, puoi ripetere?)
+Lei ha la lingua lunga come una cravatta (sta' calmo, calmo)
+Sai che la famiglia non viene toccata
+Mangio quesadillas, bevo horchata
+Tu mi sembri una spia, mi sembri un pachanga (uh)
+Mi sembri un pachanga in divieto di sosta
+Sto andando globale, non lo faccio apposta
+Lo leggo il labiale, vedo che conosci
+Ti vedo shy, hai la faccia rossa (eh)
+Che faccia tosta, mi ama perché le ho fottuto la borsa (uah)
+Finiamo prima che il suo tipo ritorna (ah)
+Cash, cash, tutto il resto nique mouk
+Cosa? (eh?) Ti ricordi di me, chiamami se hai bisogno
+LSD, sto vivendo in un sogno (eh)
+Oh mio Dio, come sto (sto)
+Oh mio Dio, come sto
+Come sta, come stai? Tuta Stone Island, come mi sta?
+Ça va ou quoi, ça va ou pas, ascolto il tuo rap, mi cascan le palle
+Hai un grosso petto, hai grosse braccia, piccole palle
+Se metto jeans DSQUARED, fanculo ai Balmain
+Parton minacce, poi dopo arrivo ai fatti
+Sei un personaggio, tanto so già dove abiti (pow-pow)
+Ho già il mio alibi, mando qualcuno a farti (pow-pow-pow)
+Ti entrano in casa mentre sei in camera a farti (brr, brr)
+Pizza kebab, due euro e cinquanta, dimmi tu dov'eri (dimmi tu dov'eri)
+Aman aman, sto nella trap, sono Machiavelli (yeah)
+Non è normale come lo faccio con i miei fratelli
+Aman aman, moch normal, aman ama-
+Cash, cash, tutto il resto nique mouk
+Cosa? (eh?) Ti ricordi di me, chiamami se hai bisogno
+LSD, sto vivendo in un sogno
+Oh mio Dio, come sto (sto)
+Oh mio Dio, come sto
+SadTurs
+Kiid, you ready?
